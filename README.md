@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/1039951554238754839/1040327482978615386/Untitled39_20221110205552.png)
+![](https://media.discordapp.net/attachments/1009937288802881649/1009945573803180153/unknown.png?width=1025&height=342)
 #
 
 <p align="center"> <b><u>@Rosey | Sarp</u></b></p>
